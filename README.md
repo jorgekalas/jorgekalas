@@ -6,5 +6,5 @@ Starting my path as data scientist
 
 email: jorgekalas@gmail.com  
 
-LinkedIn: https://www.linkedin.com/jorgekalas
+LinkedIn: https://www.linkedin.com/in/jorgekalas
 
