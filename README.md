@@ -1,8 +1,6 @@
 Jorge Kalás  
 
-CPA and Economics Teacher  
-
-Starting my path as a full-stack developer  
+FullStack Developer, CPA and Economics Teacher    
 
 email: jorgekalas@gmail.com  
 
