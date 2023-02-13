@@ -6,3 +6,5 @@ Hi! My name is Jorge Kalás
 
 🔗 My LinkedIn profile can be found at https://www.linkedin.com/in/jorgekalas
 
+🚀 Have a great day!
+
