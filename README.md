@@ -1,8 +1,8 @@
-Jorge Kalás  
+Hi! My name is Jorge Kalás  
 
-FullStack Developer, CPA and Economics Teacher    
+🤓 I am FullStack Developer, CPA and Economics Teacher    
 
-email: jorgekalas@gmail.com  
+📧 My email address is: jorgekalas@gmail.com (do not hesitate to contact me)
 
-LinkedIn: https://www.linkedin.com/in/jorgekalas
+🔗 My LinkedIn profile can be found at: https://www.linkedin.com/in/jorgekalas
 
